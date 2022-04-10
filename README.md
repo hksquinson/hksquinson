@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Hon Kwan Shun Quinson
+Working on AI and other stuff
+
+Email: hksquinson@gmail.com
